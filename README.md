@@ -1,1 +1,1 @@
-# 2020_Digital_Management
+#### 2020-2 디지털경영론
